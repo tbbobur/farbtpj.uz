@@ -1,0 +1,2 @@
+# ferbtpj.uz
+pensiya
