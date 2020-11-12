@@ -1,2 +1,2 @@
-# ferbtpj.uz
+# farbtpj.uz
 pensiya
